@@ -1,0 +1,1 @@
+# Publication_The_Optimized_Economy_Manifesto
